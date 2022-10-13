@@ -2,4 +2,4 @@
 - Interested in games, animation, drawing, engineering, and GitHub.
 - ULTRAKILL! GRAHHHHHH!1!!
 - You can contact me almost never lol have fun trying
-- Part of a very cool FTC team
+- Part of a very cool robotics team
